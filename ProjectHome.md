@@ -1,0 +1,1 @@
+This project is for Honorbuddy mainly and will soon be updated to support Gatherbuddy. I will be updating this daily and I plan on keeping the profiles AFK friendly. I will only upload someone else's profile if I have edited something else on it.
